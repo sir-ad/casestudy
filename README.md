@@ -18,3 +18,8 @@ You now wish to get feedback from your prospective customers by releasing a beta
 
 ![alt text](https://www.mahindrateqo.com/wp-content/uploads/2019/03/splaplus-display.png)
 
+
+
+#### Terminologies :
+
+Performance Ratio :
